@@ -1,2 +1,1 @@
-# TOKEN-
-Tron blockchain par coming soon
+New world currency token
